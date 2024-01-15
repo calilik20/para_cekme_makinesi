@@ -1,0 +1,1 @@
+# para_cekme_makinesi
